@@ -1,1 +1,1 @@
-https://wejderd1.github.io/Food/index.html
+https://wejderD1.github.io/Food/index.html
